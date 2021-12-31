@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+<h1>How To Marry A Millionaire Perfume</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-marry-a-millionaire-perfume/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">This Month's In Style Posts On Fragrance Shrine</a></li><li><a href="#toc-1">Emporio Armani Stronger With You Edt</a></li><li><a href="#toc-2">Scented Oil For San Lazaro, Fragrances, Scented Oil, Perfumes, Spell Magic Candle Ritual Ceremony Hoodoo Voodoo Wicca Non Secular</a></li><li><a href="#toc-3">Barbie Marilyn Monroe The Method To Marry A Millionaire Magenta Gown Ensemble No Doll</a></li></ul></div>
+<p>One of the principle reasons for its excessive price is that only 50 limited version bottles of Joy are made every year. This perfume was launched in 1981 and continues to be well-liked at present. Its ingredients are a mix of citrus splashes, natural and candy, basil, and ylang-ylang. The bottle is designed attractively in a novel shape. The product is a joint effort by two top firms, Francis Camail and Annick Goutal, and it is nonetheless creating waves many years after its introduction. Finally, packaging also performs a giant role within the excessive prices.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What fragrance does Victoria Beckham wear?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Victoria Beckham has been identified to switch it up in relation to her signature scent. She's gone for the basic and royalty-approved Creed Royal Water ($660) and has also spilled to Who What Wear, "I completely love Byredo products, especially their Bal d'Afrique ($175). That's my favourite fragrance at the moment."</p></div>  </div></div>
+<p>Even although she’s no longer alive, her namesake firm continues to thrive and reportedly generates hundreds of millions in gross sales each year. Chanel was born on August 19, 1883, in Saumur, France. She was raised in an orphanage after her mom died and her father abandoned her.</p>
+<h2 id="toc-0">This Month's In Style Posts On Fragrance Shrine</h2>
+<p>Any payment information entered is processed by trusted third parties who're in flip compliant with current knowledge laws. Information like card details, PayPal account data and other information which may be used for cost is not saved by our system and is not accessible by ourselves at any time. We solely retain data on the quantity paid, the service used to finish payment and the reference for the payment. Unless you have consented to make use of of your data for personalisation functions this info is only used to fulfil our contract with you and to address any concern that may arise with your buy.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What is the stronger perfume?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Eau de Parfum (EDP) is the strongest kind of perfume we sell. Eau de Parfum accommodates between 10-20% of fragrance oil, and is a well-liked selection with both fragrance brands and prospects. Eau de Parfum will typically last around 8 hours. Eau de Toilette (EDT) is subsequent, containing round 5-15% of perfume oil.</p></div>  </div></div>
+<p>While Kim Kardashian got here from a household made famous by her well-known father, she had a quantity of of her personal breakout moments alongside the way. Creating the right wintery vibe is nice with the addition of the aroma coming into play, essentially, you don’t should follow the fragrance guidelines. You may choose to be rebellious and follow your accord.</p>
+<h3 id="toc-1">Emporio Armani Stronger With You Edt</h3>
+<p>In conclusion, to grasp these brilliant fragrances higher, it's best to go attempt them out on the pores and skin. See the scent work wonders and develop gracefully. The bottle is minimal, featuring an enormous ‘Y’ with a darkish reflection of the scent. Impressively, this powerhouse perfume has fantastic performance and can be utilized all year spherical.</p>
+<div style='text-align:center'><iframe width='568' height='314' src='https://www.youtube.com/embed/2zj3b5AkQgU' frameborder='0' alt='how to marry a millionaire perfume' allowfullscreen></iframe></div>
+<p>Any remaining credit score can be used on a number of purchases. Any returned items must be received inside 28 days of buy to qualify for a refund or alternative. Any items broken during return due to insufficient packaging could only receive a part refund at Perfume-Click.com's discretion.</p>
+<h3 id="toc-2">Scented Oil For San Lazaro, Fragrances, Scented Oil, Perfumes, Spell Magic Candle Ritual Ceremony Hoodoo Voodoo Wicca Non Secular</h3>
+<p>In its first season, Dollywood attracted 1.3 million visitors—a 75% increase over Silver Dollar City’s season the yr prior. The park is now Tennessee's most-visited vacationer attraction, drawing about 3 million visitors a yr. Parton’s 50% stake is price about $165 million, Forbes estimates. It’s that type of shrewd business mindset that has helped Parton construct an estimated $350 million fortune.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-marry-a-millionaire-perfume/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>These are designed to entice and enchant the senses. As an instance, an order of 10 merchandise will provide you with a reduction of $54, and this low cost can of course be combined with different offers and discounts as you please. Please note that you have to order the products all on the similar time to be eligible for the low cost. You get the discount even when you buy two totally different merchandise, and there’s no higher limit to how much cash off you will get. This means you could save plenty of money on greater orders. To the purchaser or vendor of any business or asset which we are selling or purchasing.</p>
+<h2 id="toc-3">Barbie Marilyn Monroe How To Marry A Millionaire Magenta Gown Ensemble No Doll</h2>
+<p>The individuals who purchase so-called costly tennis footwear where many can’t afford them my two-cent is reside and let reside. I dont even like these expensive western perfumes. They scent acrid, chemical, and completely unnatural. I agree with what you mentioned about utilizing perfume at the correct time. I once labored with a lady who lavishly sprayed Poison on every morning after which by way of the day. That was over 27 years in the past and to this present day that odor gives me a headache.</p>
+<ul><li>Brought to us by Prairie Creek Beverages, the same firm liable for J.R.</li><li>The Bible is thought to be one of the necessary books that people tend to live by.</li><li>We have been selling fragrance & beauty products online since 2009.</li><li>And we've a hunch you'll find a way to already guess the hard-as-a-rock secret ingredient.</li><li>In particular, the name Eros derives from the Greek God of Love and Son of Aphrodite.</li></ul>
+<p>How to Marry a Millionaire is a 1953 American romantic comedy movie directed by Jean Negulesco and written and produced by Nunnally Johnson. Only logged in clients who've bought this product might leave a evaluation. The very finest quality and genuine perfume for ladies, blended with the best quality of rare and splendid ingredients to lighten the intensity, making a flawless balance that is unimaginable to search out. If you, like us, have a weak point for a bewitching eye masks that concurrently nixes darkish circles and wrinkles, you've got truly met your match with this celestial model from 111Skin.</p>
